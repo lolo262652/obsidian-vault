@@ -7,6 +7,11 @@
 
 ---
 
+> *« Chaque contrat signé est une promesse que l'on se fait à soi-même. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Premier contrat médical. Nouveaux contacts. L'école de Tunis vacille.

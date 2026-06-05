@@ -7,6 +7,11 @@
 
 ---
 
+> *« La magie s'éteint quand le cœur cesse d'y croire. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 L'avortement les rapproche dans la perte. La magie de Globette s'éteint.

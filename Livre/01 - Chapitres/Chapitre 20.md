@@ -7,6 +7,11 @@
 
 ---
 
+> *« La solitude n'est pas l'absence de bruit. C'est l'absence de sens. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Père malade. Un jeune homme chez Globette. Alexandre seul.

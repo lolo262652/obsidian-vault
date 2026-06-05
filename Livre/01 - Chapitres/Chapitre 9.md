@@ -7,6 +7,11 @@
 
 ---
 
+> *« On emporte son pays dans ses valises, même quand on ne revient pas. »*
+> — Léopold Sédar Senghor
+
+---
+
 ## Résumé
 
 Globette retourne à Tunis pour l'école, valises de cadeaux pour sa famille.

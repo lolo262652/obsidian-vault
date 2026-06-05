@@ -7,6 +7,11 @@
 
 ---
 
+> *« On peut quitter un pays, on ne quitte jamais celui qui l'habite. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Alexandre rentre seul. Le monde va bien quand Globette est chez elle.

@@ -7,6 +7,11 @@
 
 ---
 
+> *« Il existe des mondes invisibles qui ne demandent qu'à être vus. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Le monde de Globette vu par les yeux d'Alexandre.

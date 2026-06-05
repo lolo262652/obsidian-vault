@@ -7,6 +7,11 @@
 
 ---
 
+> *« Paris est une fête, mais certaines fêtes commencent par un deuil silencieux. »*
+> — D'après Hemingway
+
+---
+
 ## Résumé
 
 Arrivée à Paris : la maison, le bureau, la mise en place du stage.

@@ -7,6 +7,11 @@
 
 ---
 
+> *« L'argent ne change pas les gens. Il révèle ce qui a toujours été là. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Globette ne demande que de l'argent. Alexandre dégoûté repense à l'avant.

@@ -7,6 +7,11 @@
 
 ---
 
+> *« Les odeurs sont les seules choses qui traversent le temps sans vieillir. »*
+> — D'après Patrick Süskind
+
+---
+
 ## Résumé
 
 Perte du dernier client. Retour de Globette. Le parfum de sa peau a changé.

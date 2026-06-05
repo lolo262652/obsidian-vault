@@ -7,6 +7,11 @@
 
 ---
 
+> *« L'amour n'arrive pas quand on le cherche, mais quand on cesse de courir. »*
+> — Paulo Coelho
+
+---
+
 ## Résumé
 
 Premier contact amoureux, soirée liberté, découverte de la maison parentale d'Alexandre.

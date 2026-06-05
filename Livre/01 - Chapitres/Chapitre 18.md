@@ -7,6 +7,11 @@
 
 ---
 
+> *« On n'est jamais vraiment libre. On est juste en cavale. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Présentation de Dali. Obligation de quitter le territoire. Globette ne peut plus rentrer.

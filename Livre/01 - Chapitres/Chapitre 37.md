@@ -7,6 +7,11 @@
 
 ---
 
+> *« Le sixième sens, c'est l'amour qui prévient avant que la raison ne comprenne. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Globette avec Geniette. Alexandre rencontre Beurk. Sixième sens.

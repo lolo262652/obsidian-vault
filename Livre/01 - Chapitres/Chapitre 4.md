@@ -7,6 +7,11 @@
 
 ---
 
+> *« Séparer deux cœurs, c'est couper une rivière en deux. L'eau finit toujours par retrouver son chemin. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Départ et séparation. Conversations en ligne intenses. Stage proposé à Globette à Paris.

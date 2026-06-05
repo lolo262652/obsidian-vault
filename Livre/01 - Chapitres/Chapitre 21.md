@@ -7,6 +7,11 @@
 
 ---
 
+> *« Les enfants sont les seuls à savoir réparer leurs parents sans outils. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 La fille d'Alexandre l'aide. Nouveaux clients. Réconciliation avec Globette.

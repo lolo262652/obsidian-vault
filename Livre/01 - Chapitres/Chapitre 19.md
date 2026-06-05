@@ -7,6 +7,11 @@
 
 ---
 
+> *« Chaque amie est une porte vers une version de nous-même qu'on ignorait. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 MagProtect. Geniette la fée-sorcière. Globette devient matérialiste.

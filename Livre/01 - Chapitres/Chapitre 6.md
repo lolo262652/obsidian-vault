@@ -7,6 +7,11 @@
 
 ---
 
+> *« Le premier pas dans un nouveau monde est toujours un saut dans le vide. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Premier jour de stage. Globette découvre Paris. Alexandre joue le grand jeu.

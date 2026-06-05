@@ -4,8 +4,8 @@
 
 | Indicateur | Valeur |
 |------------|--------|
-| **Mots écrits** | 0 |
-| **Chapitres** | 40 (dont 0 écrits) |
+| **Mots écrits** | ~1800 |
+| **Chapitres** | 40 (dont 1 écrit) |
 | **Structure** | ✅ Terminée |
 | **Personnages** | 2 / 15 créés dans Obsidian |
 
@@ -13,7 +13,7 @@
 
 | # | Titre | Statut | Mots |
 |---|-------|--------|------|
-| 1 | Le départ pour Tunis | 🔲 À écrire | 0 |
+| 1 | Le départ pour Tunis | ✅ Écrit | ~1800 |
 | 2 | Arrivée à Tunis, rencontre avec Globette | 🔲 À écrire | 0 |
 | 3 | Premier amour | 🔲 À écrire | 0 |
 | 4 | Séparation et stage | 🔲 À écrire | 0 |

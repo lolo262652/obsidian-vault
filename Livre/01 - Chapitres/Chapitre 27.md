@@ -7,6 +7,11 @@
 
 ---
 
+> *« Dire adieu à quelqu'un qu'on aime, c'est lui offrir la liberté qu'on n'a pas. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Séparation professionnelle. Père d'Alexandre hospitalisé en urgence.

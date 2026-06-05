@@ -7,6 +7,11 @@
 
 ---
 
+> *« La vérité peut attendre. La justice, non. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Plainte de Globette. Audition. Alexandre est cru par la police.

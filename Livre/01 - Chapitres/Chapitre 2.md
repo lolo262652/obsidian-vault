@@ -7,6 +7,11 @@
 
 ---
 
+> *« Le jasmin ne sait pas qu'il embaume. C'est en cela qu'il est irrésistible. »*
+> — Sagesse tunisienne
+
+---
+
 ## Résumé
 
 Arrivée à Tunis. Accueil de Djamel. Le jasmin, la Résidence, la rencontre avec Globette la fée.

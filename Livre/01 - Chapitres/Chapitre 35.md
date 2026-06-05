@@ -7,6 +7,11 @@
 
 ---
 
+> *« Les ascenseurs tombent parfois. Les pères, toujours. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Globette fait venir le père d'Alexandre. L'ascenseur se bloque.

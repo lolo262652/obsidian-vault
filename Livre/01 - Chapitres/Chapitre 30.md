@@ -7,6 +7,11 @@
 
 ---
 
+> *« Un enfant qui ne naît pas emporte avec lui tous les possibles d'un amour. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Globette enceinte. Avortement car Alexandre n'est pas magicien. Dévastation.

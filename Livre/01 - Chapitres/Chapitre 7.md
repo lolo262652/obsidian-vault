@@ -7,6 +7,11 @@
 
 ---
 
+> *« Les rues de Paris savent garder les secrets. Les cœurs, un peu moins. »*
+> — Inconnu
+
+---
+
 ## Résumé
 
 Premiers rendez-vous clients. Paris, ses rues, sa tendresse et sa vérité.
