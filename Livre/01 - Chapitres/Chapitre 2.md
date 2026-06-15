@@ -73,6 +73,26 @@ La voiture s'arrêta devant un bâtiment blanc de trois étages, avec une façad
 
 Alexandre descendit, prit sa valise, et poussa la porte de l'hôtel.
 
+Lorsque le taxi franchit les grilles du domaine, Alexandre eut l'étrange sensation de laisser le monde derrière lui. La route bordée de palmiers semblait le conduire vers un mirage dressé entre ciel et mer. Au loin, la blancheur éclatante du palais se détachait dans la lumière du soir, majestueuse et presque irréelle.
+
+À mesure qu'il approchait, les détails se précisaient. Une immense arche de pierre marquait l'entrée principale, telle la porte d'un royaume oublié. Les façades immaculées, les colonnades élégantes et les jardins parfaitement entretenus composaient un décor d'une harmonie saisissante. Lorsque le chauffeur s'arrêta devant le perron, Alexandre resta quelques secondes immobile, comme pour s'imprégner de l'instant.
+
+Alors il le sentit.
+
+Le parfum du jasmin.
+
+Il flottait dans l'air avec une douceur envoûtante, porté par une légère brise venue des jardins. Ce parfum lui rappela immédiatement les soirées d'été de son enfance, lorsque la nuit tombait lentement et que les fleurs embaumaient les rues. Ici, l'odeur semblait encore plus intense, presque magique, comme si chaque fleur avait été placée là pour accueillir les voyageurs.
+
+En franchissant les portes de l'hôtel, Alexandre découvrit un univers où le luxe ne criait jamais son nom. Sous une coupole monumentale, la lumière descendait en cascades dorées sur les sols de marbre. Les voûtes élégantes, les fontaines murmurantes et les jeux d'ombre donnaient à l'ensemble une atmosphère de palais oriental hors du temps.
+
+Le silence qui régnait n'était pas un vide, mais une présence. On y entendait le clapotis discret de l'eau, quelques conversations lointaines et le bruissement des palmes dans les jardins. Chaque détail semblait inviter à ralentir, à oublier le tumulte du monde extérieur.
+
+Lorsqu'il atteignit enfin sa chambre et poussa les portes du balcon, le spectacle le saisit. Les jardins s'étendaient devant lui comme une oasis luxuriante. Plus loin, la Méditerranée scintillait sous les derniers rayons du soleil. Le ciel se teintait de rose, d'orange et de pourpre, tandis que le parfum du jasmin remontait jusqu'à lui.
+
+Alexandre ferma les yeux un instant.
+
+Il était venu dans cet hôtel pour quelques jours seulement. Du moins, c'était ce qu'il croyait. Car il ignorait encore que derrière les murs élégants de ce palais, au milieu des jardins parfumés de jasmin et des nuits tunisiennes baignées de lune, l'attendait une rencontre qui allait changer le cours de sa vie.
+
 Le hall était frais, carrelé de marbre clair. Un lustre en cuivre pendait au plafond. Au fond, un patio laissait voir un jardin intérieur avec une fontaine. Et encore cette odeur de jasmin, qui imprégnait chaque recoin.
 
 La réceptionniste, une femme d'une quarantaine d'années au sourire discret, lui tendit une clé.
