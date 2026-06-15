@@ -29,6 +29,8 @@ Il habitait cet appartement depuis douze ans. Un trois-pièces au quatrième ét
 
 C'était un bel appartement. Calme. Confortable. Mais vidé de toute vie véritable.
 
+
+
 Il se leva, enfila son peignoir, et traversa le couloir pieds nus. Le parquet craqua sous son poids, un bruit familier, presque rassurant. Dans la cuisine, la machine à café clignotait en chiffres rouges. Il mit une capsule, attendit que le liquide noir s'écoule dans sa tasse — la même tasse en faïence bleue depuis dix ans — et s'assit face à la fenêtre.
 
 Dehors, la vie continuait sans lui. Son immeuble donnait sur une rue calme bordée de platanes taillés au cordeau. En face, la boulangerie ouvrait ses volets métalliques dans un bruit de tonnerre. Un livreur à vélo slalomait entre les poubelles alignées sur le trottoir. Une femme en manteau beige, tirant un caddie vide, se dirigeait vers le marché. La même routine. Les mêmes gestes. Chaque jour, les mêmes vies recommencées.
@@ -37,7 +39,7 @@ Alexandre but une gorgée de café. Il était fort, un peu trop amer. Comme chaq
 
 ### II
 
-Il s'habilla sans se regarder dans le miroir. Chemise blanche repassée la veille, costume bleu marine, chaussures cirées. Le même uniforme depuis des années. Il attrapa son attaché-case en cuir — celui que son père lui avait offert le jour de son premier contrat — et sortit.
+Il s'habilla sans se regarder dans le miroir. agé de 52 papa de 3 enfants dont 2 mariés et d une encore etudiante . cela fait longtemps qu il ne faisait plus attenttion a lui. Chemise blanche repassée la veille, costume bleu marine, chaussures cirées. Le même uniforme depuis des années. Il attrapa son attaché-case en cuir — celui que son père lui avait offert le jour de son premier contrat — et sortit.
 
 L'ascenseur mit cinq secondes à arriver. Il en profita pour vérifier ses emails. Rien d'urgent. Rien d'important. Rien qui méritait vraiment qu'il se dépêche.
 
@@ -99,7 +101,7 @@ C'était irrationnel. Il n'avait pas de famille là-bas, pas de rendez-vous, pas
 
 Il confirma l'achat.
 
-Une notification apparut : *« Votre vol est confirmé. Départ demain, 14h30. Aéroport Charles-de-Gaulle. »*
+Une notification apparut : *« Votre vol est confirmé. Départ demain, 14h30. Aéroport Orly Terminal 3. »*
 
 Il ferma l'ordinateur et regarda par la fenêtre. La lumière de Paris jouait sur les toits de zinc, cette lumière grise et douce qui n'appartenait qu'à cette ville. Il l'aimait. Mais elle ne lui suffisait plus.
 
